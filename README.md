@@ -2,6 +2,10 @@ Just a little list for me and my friends to put our completions on. Spent way mo
 
 -UPDATES-
 
+june 3rd, 2026:
+
+added subterra as the 58th demon, and GeoManiacs completion of ISpy and my own of subterra. Also brought back list 2 new link with more level pages.
+
 may 21st 2026:
 
 just some small bug fixes
