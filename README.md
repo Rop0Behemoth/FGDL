@@ -2,6 +2,10 @@ Just a little list for me and my friends to put our completions on. Spent way mo
 
 -UPDATES-
 
+july 6th, 2026:
+
+added four more levels, with two being in the top ten
+
 Jully 3rd/2nd, 2026:
 
 My friend asked Me if I was still doing this, and because I didn't want to dissipoint, I began adding all of the most recent top 20 completions. there are still a few easier levels that I am yet to add, but those will come in the near futre. The levels added are as follows- Nine Circles XII, Fractured Circles, Ultra Fairydust, Evil, Kappa boss fight, and mikumikumikumikumiku.
