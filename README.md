@@ -1,6 +1,10 @@
 Just a little list for me and my friends to put our completions on. Spent way more time and effort into than I should've
 
--UPDATES-
+-UPDATES
+
+july 11th, 2026
+
+so uhhh it turns out CatchyStatue210 hacked most of his levels lol. I still need to get rid of the other completions, but I will do that later. I also beat classicals, and beat deprivation cuz I hacked it the first time(sorry). and sorry fro sounding shameless, its only because I don't want 2 write about this story a third time.
 
 july 6th, 2026:
 
