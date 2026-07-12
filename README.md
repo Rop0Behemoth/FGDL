@@ -4,8 +4,8 @@ Just a little list for me and my friends to put our completions on. Spent way mo
 
 july 12th, 2026
 
-Just added a few more level pages lol. not much else so far
-
+Just added a few more level pages lol. not much else so far. CatchyStatue210 also started his redemption arc by beating retro 
+circels so huge W for him
 july 11th, 2026
 
 so uhhh it turns out CatchyStatue210 hacked most of his levels lol. It is honestly really sad for he was my only real competition. I also beat classical, and beat deprivation cuz I hacked it the first time(sorry). and sorry for sounding shameless, its only because I don't want 2 write about this story a third time.
