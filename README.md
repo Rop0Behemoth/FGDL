@@ -2,6 +2,10 @@ Just a little list for me and my friends to put our completions on. Spent way mo
 
 -UPDATES
 
+july 13th 2026
+
+Four new levels!, with those being infinite circles, trump circles, inferiorum modum, and butterfly effect(after Catchy hacked it). with all of them being completed by me, and two of them having one of the longest times without getting added to the list. I also moved down Ultra Paracosm, and added Catchys legitamite completion of retro circles!
+
 july 12th, 2026
 
 Just added a few more level pages lol. not much else so far. CatchyStatue210 also started his redemption arc by beating retro 
