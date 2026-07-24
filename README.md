@@ -2,6 +2,10 @@ Just a little list for me and my friends to put our completions on. Spent way mo
 
 -UPDATES
 
+july 23rd
+
+added more completions and levels.
+
 july 14th 2026
 
 Just more level pages so far.
