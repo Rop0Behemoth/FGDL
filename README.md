@@ -1,6 +1,9 @@
 Just a little list for me and my friends to put our completions on. Spent way more time and effort into than I should've
 
--UPDATES
+-UPDATESew top 1 fairydust
+july 24th
+
+added n
 
 july 23rd
 
