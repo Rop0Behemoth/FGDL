@@ -1,9 +1,15 @@
 Just a little list for me and my friends to put our completions on. Spent way more time and effort into than I should've
 
--UPDATESew top 1 fairydust
-july 24th
 
-added n
+
+
+-UPDATES
+July 27th
+more levels, and one big movement
+
+july 24th
+new top 1 fairydust
+
 
 july 23rd
 
