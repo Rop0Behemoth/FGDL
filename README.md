@@ -4,6 +4,13 @@ Just a little list for me and my friends to put our completions on. Spent way mo
 
 
 -UPDATES
+
+Aug 7th 26
+New Levels, Poltergeist and Decode, + less levels cuz hax
+
+Aug 5th 26
+New top one sihlhouhette
+
 July 27th
 more levels, and one big movement
 
