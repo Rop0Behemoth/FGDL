@@ -5,6 +5,14 @@ Just a little list for me and my friends to put our completions on. Spent way mo
 
 -UPDATES
 
+sept 2nd 20206
+
+Night terrors added as the 9th top one
+
+sept 1st 2026
+
+more levels and a few new completions, also a level removed.
+
 Aug 7th 26
 New Levels, Poltergeist and Decode, + less levels cuz hax
 
