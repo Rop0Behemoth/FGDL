@@ -5,6 +5,11 @@ Just a little list for me and my friends to put our completions on. Spent way mo
 
 -UPDATES
 
+
+Sept 2nd - sept 30 2026
+
+added more levels/completions but forgot to record them here.
+
 sept 2nd 20206
 
 Night terrors added as the 9th top one
