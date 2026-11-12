@@ -5,6 +5,10 @@ Just a little list for me and my friends to put our completions on. Spent way mo
 
 -UPDATES
 
+Nov 12th
+
+I stopped updating readme lol, all u need 2 know Is that I added a Lot more levels lolll
+
 oct 4th
 
 new top 20 troll madness. Not 2 hard but yea so wut blag im half asleep its 5 am i havent gotten any sleep im tired
