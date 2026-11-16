@@ -5,6 +5,10 @@ Just a little list for me and my friends to put our completions on. Spent way mo
 
 -UPDATES
 
+nov 16th
+
+frozen jawbreaker, semicircles, flea, and hyperphobia added
+
 Nov 12th
 
 I stopped updating readme lol, all u need 2 know Is that I added a Lot more levels lolll
