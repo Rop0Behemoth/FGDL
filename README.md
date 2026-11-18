@@ -5,6 +5,10 @@ Just a little list for me and my friends to put our completions on. Spent way mo
 
 -UPDATES
 
+nov 18th
+
+fixed a few bugs and added machina deluxxe(75) and crying souls(top 5)
+
 nov 16th
 
 frozen jawbreaker, semicircles, flea, and hyperphobia added
