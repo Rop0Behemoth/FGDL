@@ -5,6 +5,11 @@ Just a little list for me and my friends to put our completions on. Spent way mo
 
 -UPDATES
 
+nov 24th
+
+Fixed typos, added new victor of problematic, new top one, and a medium demon and an easy demon, a bit of everything was
+added 2day
+
 nov 19th
 
 two new records for TheWhit3H0rnet(machina deluxxe and clubstep). and two people changed their icons(N7Smash and TheWhit3H0rnet)
